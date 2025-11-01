@@ -4,7 +4,7 @@
 
 ## 👋 ¡Hola! Soy Daniel Manchola
 
-Me encanta reinventar el día a día de los equipos y las empresas:  
+Me encanta reinventar mi día a día, el de los equipos y las empresas:  
 **Mezclo innovación, IA y gestión HSEQ para que la productividad y la seguridad vayan de la mano.**
 
 ---
